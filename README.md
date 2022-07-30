@@ -1,4 +1,4 @@
-# gitty_up_5
+REMOTE
 
 Yo mama's so stupid, she tried to drown a fish.
 
