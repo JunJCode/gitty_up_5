@@ -1,4 +1,4 @@
-# gitty_up_5
+LOCAL
 
 Yo mama's so stupid, she tried to drown a fish.
 
